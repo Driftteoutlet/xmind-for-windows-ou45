@@ -1,4 +1,4 @@
-
+Get the ultimate XMind for Windows script with premium XMind for Windows Script | cloud-sync + themes. Featuring cloud-sync and themes, it's the best choice for Windows users.
 
 
 
